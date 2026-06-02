@@ -1,4 +1,4 @@
-# 
+# Nouveau perpetual trading bot extensions pour Mac OS | Professionnel perpetual trading bot extensions pour PC Windows. Avec optimisation des frais de gaz et API d'échange centralisé — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
